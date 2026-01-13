@@ -5,3 +5,4 @@
 - **Tài khoản Gmail:** hosytuan2910@gmail.com  
 - **Tài khoản GitHub:** https://github.com/hosytuan2910  
 - **Tài khoản Trello:** https://trello.com/hosytuan2910
+- **xin chao:** https://trello.com/hosytuan2910
